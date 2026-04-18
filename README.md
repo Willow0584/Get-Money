@@ -1,2 +1,2 @@
-# William Booth
+# WB
 
